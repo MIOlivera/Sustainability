@@ -1,2 +1,2 @@
 # Sustainability
-Educational Attainment and Sustainability
+The Green Equalizer
